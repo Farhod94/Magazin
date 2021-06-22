@@ -1,0 +1,2 @@
+# Magazin
+Oyoq kiyim sayti
